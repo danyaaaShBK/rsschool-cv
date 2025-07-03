@@ -1,1 +1,1 @@
-some text
+https://danyaaaShBK.github.io/rsschool-cv/cv
